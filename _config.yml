@@ -1,5 +1,5 @@
--
- -url: "http://progettoaustralia.it"
- -
-  gems:
+
+url: "http://progettoaustralia.it"
+
+gems:
     - jekyll-redirect-from
