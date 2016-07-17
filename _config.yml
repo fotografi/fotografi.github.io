@@ -1,3 +1,2 @@
-redirects: yes
 gems:
   - jekyll-redirect-from
