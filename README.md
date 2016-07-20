@@ -6,7 +6,7 @@ Verrete guidati nella scelta dell'abito da sposa che vi renderà le protagoniste
 ## Nuova vetrina dell'atelier
 L'abito può essere impreziosito con gioielli e gemme colorate, avrete l'impressione di trovarvi in uno dei prestigiosi negozi che circondano le strade del centro della capitale francese. Inoltre una caratteristica che personalizza il personale è la cortesia, la creatività e naturalmente la cura per le richieste che fa la sposa o la <A HREF=http://www.noemiwedding.com/it/>Wedding Planner</A> che l'accompagna.
 ## Musica e altre attività legate all'evento
-Ecco un elenco di attività correlate alla musica per matrimonio:
+Ecco un elenco di attività correlate alla musica per matrimonio da cui si può scegliere:
 - arpa per accompagnare l'arrivo della sposa in chiesa
 - organista per la celebrazione del matrimonio
 - cantante lirica per l'accompagnamento dell'Ave Maria
