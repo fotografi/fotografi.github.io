@@ -5,3 +5,10 @@ Segue come sempre una descrizione della vetrina presa da un sito sulla sposa che
 Verrete guidati nella scelta dell'abito da sposa che vi renderà le protagoniste dei festeggiamenti: per prima cosa verrete accolte da uno staff preparato che vi aiuterà a coronare la vostra idea; secondariamente l'abito verrà creato su misura e personalizzato secondo le vostre idee creative e seguendo quelli che sono gli imnpulsi creativi del sarto.
 ## Nuova vetrina dell'atelier
 L'abito può essere impreziosito con gioielli e gemme colorate, avrete l'impressione di trovarvi in uno dei prestigiosi negozi che circondano le strade del centro della capitale francese. Inoltre una caratteristica che personalizza il personale è la cortesia, la creatività e naturalmente la cura per le richieste che fa la sposa o la <A HREF=http://www.noemiwedding.com/it/>Wedding Planner</A> che l'accompagna.
+Ecco un elenco di attività correlate alla musica per matrimonio:
+- arpa per accompagnare l'arrivo della sposa in chiesa
+- organista per la celebrazione del matrimonio
+- cantante lirica per l'accompagnamento dell'Ave Maria
+- Quintetto d'archi per l'aperitivo del pranzo nuziale
+- Trio musicale per il pranzo (sottofondo cantato)
+- Dj e vocalist per la sera con gli amici
